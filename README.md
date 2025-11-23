@@ -32,7 +32,7 @@
 
 ദ്ദി‎◍˃ ᵕ ˂◍)
 
-  hi! Call me Seven or TEMPRR, either or, most likely I prefer my most common name (Seven) though. Pleased to meet you, I enjoy spending my time on ponytown, which is where you most likely just found me.
+  hi! Call me Seven, Abel, or TEMPRR, either or, most likely I prefer my most common name (Seven/Abel) though. Pleased to meet you, I enjoy spending my time on ponytown, which is where you most likely just found me.
 
   I block/hide without given warning, nor do you need an explanation as to WHY I am blocking you. Trust me, you'll live.
 
