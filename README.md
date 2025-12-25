@@ -40,11 +40,11 @@
 
   Please be patient with me, as I am usual a busy person and may not respond immediately if I don't know you well, we aren't friends, etc.
 
-  Refrain from interacting with me if you are below 14, unless you are already my friend, or friends of friends.
+  Refrain from interacting with me if you are below 15, unless you are already my friend, or friends of friends.
 
   Please note!! I may come off as rude or I forget the use of tonetags, please just remind me or if you need them! Thank you.
 
-  DO NOT talk to me if I have unfriended you, it was for a good reason, the world will keep spinning without me. I assure you.
+  DO NOT talk to me if I have unfriended you, it was for a good reason, the world will keep spinning without me. I assure you. THOUGH! I do tend to occasionally empty my list of anyone I do NOT remember. If you see me, dont be scared just ask if I remember you!!
 
   I tend to get violent spurrs, I'd prefer you be on extreme caution when this happens. I will not hold back anything, and mostly come off as rude. 
 
